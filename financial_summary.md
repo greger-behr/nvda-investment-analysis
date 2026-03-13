@@ -1,0 +1,1 @@
+## Financial Summary (FY 2024)\n\n**Income Statement**\n- Total Revenue: $60.92B\n- Gross Profit: $44.13B\n- Operating Income: $32.97B\n- Net Income: $29.76B\n\n**Balance Sheet**\n- Total Assets: $65.74B\n- Total Liabilities: $27.81B\n- Total Stockholder Equity: $37.93B\n
